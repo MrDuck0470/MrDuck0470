@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Namie ;)
+- 👀 I’m interested in programing, cars and computers.
+- 🌱 I’m currently learning about programing in FiveM and in websites.
+- 💞️ If you want to collaborate then you can contact me on discord.
+- 📫 You can reach me threw my discord server, Link - https://discord.gg/6NPUqQA5Ez
